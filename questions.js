@@ -49,7 +49,7 @@ questions =
             "I engage in trans-pansexual furry BSDM orgies every night"
         ],
         [//Conservative
-            "I want to KILL NIGS lmao",
+            "WHEN U KILL NIGS                                                           LMAO BOTTOM TEXT",
             "The Holocaust didn't happen but we'll make it happen!",
             "Degenerates should hang, also, I'm a trans strasserist catgirl UwU",
             "I'm an EPIC GAMER and BASED AND REDPILLED GIGACHAD",
