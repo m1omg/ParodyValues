@@ -56,6 +56,6 @@ questions =
             "Women should go back to the kitchen and become tradwifes, also, Jews are the reason why I fap to shota traps 6 hrs a day",
             "God loves everyone, except the kikes, faggots, niggers, trannies...",
             "I watch anime",
-            "Gas the kikes race war now"
+            "This subreddit was banned for violations of our Content Policy."
         ]
     ]];
